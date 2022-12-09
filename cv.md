@@ -1,5 +1,3 @@
-# rsschool-cv
-
 ## Ekaterina Antonova
 
 ### Contact info
