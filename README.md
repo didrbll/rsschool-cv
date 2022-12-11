@@ -1,1 +1,1 @@
-# rsschool-cv
+https://didrbll.github.io/rsschool-cv/
